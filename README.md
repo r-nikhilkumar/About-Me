@@ -1,0 +1,4 @@
+- 👋🏻 Hi, I’m @r-nikhilkumar
+- 💡 I’m interested in Programming and team management works
+- 💻 I’m currently learning Java
+- 📱 You can contact me through my Instagram ID- r_nikhil_kumar
